@@ -18,8 +18,6 @@ My educational experience focuses on acquiring both theoretical knowledge and de
 I am confident that my acquired skills in the area of business ethics and interpersonal competence allow me to work effectively in diverse teams and make accurate decisions. I am motivated to constantly develop and seek new professional challenges that will allow me to make the most of my skills and experience.
 
 I invite you to contact me and cooperate!
-
-Translated with DeepL.com (free version)
 <!---
 Przemyslaw-Piotrowski/Przemyslaw-Piotrowski is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
